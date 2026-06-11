@@ -1,4 +1,4 @@
-# Hii 👋 I'm Mr Aakash Goswami
+# Hii 👋 I'm  Aakash Goswami
 
 ## 👩‍💻 About Me
 - 🎓  Computer Science & Engineering  
